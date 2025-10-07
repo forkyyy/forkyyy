@@ -67,7 +67,7 @@ For coordination, responsible disclosure, or collaboration on mitigation researc
 related to the *forky* era, contact **forkcontato@gmail.com**.
 
 For professional inquiries, new research projects, or job opportunities  
-under ongoing work as **Kaike Southier**, please connect via LinkedIn: @kaike-southier-5074b82b6 or email kaikesouthierleite@gmail.com
+under ongoing work as **Kaike Southier**, please connect via LinkedIn: [linkedin.com/in/kaikesouthier-5074b82b6](https://linkedin.com/in/kaikesouthier-5074b82b6****) or email kaikesouthierleite@gmail.com
 
 ---
 
